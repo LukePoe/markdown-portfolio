@@ -1,0 +1,1 @@
+I work as an Associate Program Manager and some of the skills that have helped me to be successfull in my field are that of being **detail oriented**, **having the ability to see the greater scope and impact of a decision**, **to strategically think through a program from start to finish**, *as well as my ability to* **work effeciently and independently**. 
