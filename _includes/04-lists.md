@@ -5,4 +5,4 @@ Here is a list of a few of my favorite things :smile:
 - Video Games 
   - Right now I am playing a lot of Crash Team Racing
 - Anime
-  - I am currently working my through quite a few honestly :lol:
+  - I am currently working my through quite a few honestly :laughing:
